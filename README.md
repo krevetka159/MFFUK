@@ -1,1 +1,1 @@
-# MFFUK
+Poznámky z MFFUK
